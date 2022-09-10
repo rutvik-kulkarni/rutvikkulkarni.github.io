@@ -1,1 +1,0 @@
-# rutvikkulkarni.github.io
